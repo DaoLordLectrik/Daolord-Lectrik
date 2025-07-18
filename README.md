@@ -1,3 +1,4 @@
+# Daolord Lectrik
 👋 Hello World! I'm a millennial software developer studying Web Development at Brigham Young University, Idaho.
 
 💾 Nostalgic for Old Tech? Absolutely! I have a soft spot for retro computing. I love blending vintage aesthetics with modern functionality in my projects.
