@@ -19,6 +19,7 @@ Hobbies: Playing games, archiving locations on google maps
 Check it out 🌍 **www.ghanatreasurebox.com**
 
 Let’s Connect!
-GitHub: @daolordlectrik
+GitHub: daolordlectrik
+Linkedin: https://www.linkedin.com/in/fiifi-debrah
 
 Fun Fact: I still play retro games like nintendo gameboy advance games on my phone. 😉
